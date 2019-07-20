@@ -9,11 +9,9 @@
 
 ![image](https://github.com/sherry100098/-/blob/master/被删微博/img/2019-07-19-01.png)
 
-![image](https://github.com/sherry100098/-/blob/master/被删微博/img/2019-07-19-01a.png)
+![image](https://github.com/sherry100098/-/blob/master/被删微博/img/2019-07-19-01-a.png)
 
-![image](https://github.com/sherry100098/-/blob/master/被删微博/img/2019-07-19-01b.png)
 
-![image](https://github.com/sherry100098/-/blob/master/被删微博/img/2019-07-19-01c.png)
 
 
 
